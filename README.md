@@ -22,3 +22,4 @@ Vanroy Evan Smith, the man who fatally struck and stabbed Dr. Michael Mammone in
 Jesse Mack Butler, boy who brutally raped two young girls  
 Susan Worthington, Payne County District Judge who sentenced Jesse Mack Butler in Oklahoma state court  
 Shawn Laval Smith, man who murdered UCLA architecture student Brianna Kupfer  
+Ada Brown, U.S. District Judge who struck down the federal ban on non-compete clauses  
