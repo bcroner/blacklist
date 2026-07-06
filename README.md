@@ -27,5 +27,6 @@ Danny Masterson, actor who drugged and raped at least two or three women while t
 Bill Cosby, actor and comedian who drugged women and raped them while they were unconscious  
 Brock Allen Turner, Stanford swimmer who raped an unconscious woman behind a dumpster  
 Aaron Persky, Santa Clara County Superior Court Judge who sentenced Brock Turner  
-Darren Sharper, former NFL defensive star who drugged women and raped them while they were unconscious
-
+Darren Sharper, former NFL defensive star who drugged women and raped them while they were unconscious  
+All so-called Crisis Pregnancy Clinics  
+Michael L. Johnson, a former collegiate wrestler who recklessly infected multiple male sexual partners with HIV  
