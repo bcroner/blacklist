@@ -38,3 +38,4 @@ JB Pritzker, governor of Illinois
 Abigail Spanberger, governor of Virginia  
 Dennis Rader, the BTK killer  
 Edmund Kemper, the co-ed killer  
+Sarah West, Minnesota judge who overturned a unanimous guilty verdict in a $7.2 million Medicaid fraud case  
