@@ -13,7 +13,7 @@ Tyler Robinson, man who murdered Charlie Kirk for expressing opinions that he di
 Jean Boyd, State District Judge of Tarrant County, Texas, who issued penalty for Ethan Couch  
 Nikolas Cruz, man who shot up Marjory Stoneman Douglas High School   
 Denise Cunha, holdout juror in the penalty phase of the Nikolas Cruz school shooting trial  
-Scot Peterson, so-called Coward of Broward County whose duty it was to enter the high school Nik Cruz was shooting up  
+Scot Peterson, deputy whose duty it was to enter the high school Nik Cruz was shooting up  
 Demarcus Brown Jr., man who murdered Iryna Zarutska on a public transport for being a “white bitch”  
 Antonio Moore, man who murdered Rita Loncharich outside a Barnes & Noble in Palm Beach Gardens, Florida  
 Lawrence Reed, man who lit a woman on fire on a subway  
