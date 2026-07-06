@@ -23,3 +23,9 @@ Jesse Mack Butler, boy who brutally raped two young girls
 Susan Worthington, Payne County District Judge who sentenced Jesse Mack Butler in Oklahoma state court  
 Shawn Laval Smith, man who murdered UCLA architecture student Brianna Kupfer  
 Ada Brown, U.S. District Judge who struck down the federal ban on non-compete clauses  
+Danny Masterson, actor who drugged and raped at least two or three women while they were unconscious  
+Bill Cosby, actor and comedian who drugged women and raped them while they were unconscious  
+Brock Allen Turner, Stanford swimmer who raped an unconscious woman behind a dumpster  
+Aaron Persky, Santa Clara County Superior Court Judge who sentenced Brock Turner  
+Darren Sharper, former NFL defensive star who drugged women and raped them while they were unconscious
+
