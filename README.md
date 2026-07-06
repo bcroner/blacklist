@@ -18,3 +18,4 @@ Demarcus Brown Jr., man who murdered Iryna Zarutska on a public transport for be
 Antonio Moore, man who murdered Rita Loncharich outside a Barnes & Noble in Palm Beach Gardens, Florida  
 Lawrence Reed, man who lit a woman on fire on a subway  
 Marlon Miller, man who randomly punches white women in the head while walking on the street  
+Vanroy Evan Smith, the man who fatally struck and stabbed Dr. Michael Mammone in Dana Point, California  
