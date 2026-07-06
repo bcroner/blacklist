@@ -30,3 +30,9 @@ Aaron Persky, Santa Clara County Superior Court Judge who sentenced Brock Turner
 Darren Sharper, former NFL defensive star who drugged women and raped them while they were unconscious  
 All so-called Crisis Pregnancy Clinics  
 Michael L. Johnson, former collegiate wrestler who recklessly infected multiple male sexual partners with HIV  
+Minnesota Star Tribune  
+Jacob Frey, mayor of Minneapolis, Minnesota  
+Tim Walz, governor of Minnesota  
+Keith Ellison, AG of Minnesota  
+JB Pritzker, governor of Illinois  
+Abigail Spanberger, governor of Virginia  
