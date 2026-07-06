@@ -19,3 +19,6 @@ Antonio Moore, man who murdered Rita Loncharich outside a Barnes & Noble in Palm
 Lawrence Reed, man who lit a woman on fire on a subway  
 Marlon Miller, man who randomly punches white women in the head while walking on the street  
 Vanroy Evan Smith, the man who fatally struck and stabbed Dr. Michael Mammone in Dana Point, California  
+Jesse Mack Butler, boy who brutally raped two young girls  
+Susan Worthington, Payne County District Judge sentenced Jesse Mack Butler in Oklahoma state court  
+Shawn Laval Smith, man who murdered UCLA architecture student Brianna Kupfer  
