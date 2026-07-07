@@ -40,3 +40,4 @@ Abigail Spanberger, governor of Virginia
 Dennis Rader, the BTK killer  
 Edmund Kemper, the co-ed killer  
 Sarah West, Minnesota judge who overturned a unanimous guilty verdict in a $7.2 million Medicaid fraud case  
+Michael-Jon Matthew Hickey, creator of the fake porn auditions where he had a looks test and an attitude test
