@@ -45,3 +45,4 @@ Sean Moline, abusive former co-worker at Superlative
 Amir Segal, abusive former President at Superlative  
 Mike Olsen, abusive former boss at Superlative  
 Bill Olsen, abusive former Owner at Superlative  
+Robert Easom, man who severely severed the spinal cord of Trudi Burgess after she told him she was leaving him  
