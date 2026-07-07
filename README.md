@@ -46,3 +46,6 @@ Amir Segal, abusive former President at Superlative
 Mike Olsen, abusive former boss at Superlative  
 Bill Olsen, abusive former Owner at Superlative  
 Robert Easom, man who severely severed the spinal cord of Trudi Burgess after she told him she was leaving him  
+Pedro "Pete" Arredondo, former school Chief of police who cowered out in the Uvalde School Shooting  
+Adrian Gonzales, former school police officer who cowered out in the Uvalde School Shooting  
+Joran van der Sloot, man who killed two women  
