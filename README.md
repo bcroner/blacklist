@@ -49,7 +49,6 @@ Robert Easom, man who severely severed the spinal cord of Trudi Burgess after sh
 Pedro "Pete" Arredondo, former school Chief of police who cowered out in the Uvalde School Shooting  
 Adrian Gonzales, former school police officer who cowered out in the Uvalde School Shooting  
 Joran van der Sloot, man who killed two women  
-Cassandra Mills, music track producer and malignant narcissistic manipulator  
 Mrs. Spivey, my fifth grade teacher at Nelson Elementary School, who made the career decision not alert cps  
 Dr. Carlson, my counselor who did not screen for child abuse  
 Dr. Gustafson, my head shrink who did not screen for child abuse  
