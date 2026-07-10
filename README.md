@@ -52,3 +52,4 @@ Joran van der Sloot, man who killed two women
 Mrs. Spivey, my fifth grade teacher at Nelson Elementary School, who made the career decision not alert cps  
 Dr. Carlson, my counselor who did not screen for child abuse  
 Dr. Gustafson, my head shrink who did not screen for child abuse  
+Cassandra Mills, music track producer  
