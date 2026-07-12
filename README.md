@@ -2,7 +2,6 @@
 
 This is a blacklist of people and entities who are prohibited from benefiting from my patented inventions. As a part of the licensing agreement for either of my two patented inventions, the licensee agrees not to provide any product(s) or service(s) developed using or containing the said invention(s) to any person or entity on this list. Additionally the licensee agrees to not provide said product(s) or service(s) to any person or entity who is developing or otherwise providing an offering of a product or service without entering into this licensing agreement. How are they supposed to even survive? I don’t know. It’s not my problem. They can go out and catch squirrels and cook them on a hot plate for all I care. I hear snails are slimy yet satisfying. If you ever want me to take you off this list, you should start by thinking real hard about why I put you on this list to begin with.
 
-Diane DesLauries, my biological sister, pure evil, and the worst person I have ever known in my entire life  
 Dr. Edward Kaufman, MD, psychiatrist residing in Dana Point, CA  
 Joe Biden, former US President  
 Alejandro Nicholas Mayorkas, former US Secretary of Homeland Security  
