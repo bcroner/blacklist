@@ -4,6 +4,7 @@ This is a blacklist of people and entities who are prohibited from benefiting fr
 
 Diane DesLauries, my biological sister  
 Dr. Edward Kaufman, MD, psychiatrist residing in Dana Point, CA  
+Joe Biden, former US president  
 Alejandro Nicholas Mayorkas, former US Secretary of Homeland Security  
 Christopher Hubbard, Pillowcase Rapist  
 Rex Heuermann, Gilgo Beach serial killer  
