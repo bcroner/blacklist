@@ -9,7 +9,7 @@ The Democrat National Committee and the Democrat Party
 Alejandro Nicholas Mayorkas, former US Secretary of Homeland Security  
 Christopher Hubbard, Pillowcase Rapist  
 Rex Heuermann, Gilgo Beach serial killer  
-Rex Allan Krebs, serial killer who raped and murdered my former classmate Rachel Newhouse  
+Rex Allan Krebs, serial killer who kidnapped, raped, and murdered my former classmate Rachel Newhouse  
 Dzhokhar Tsarnaev, Boston Marathon Bomber  
 Tyler Robinson, man who murdered Charlie Kirk for expressing opinions that he disagreed with  
 Jean Boyd, State District Judge of Tarrant County, Texas, who issued penalty for Ethan Couch  
