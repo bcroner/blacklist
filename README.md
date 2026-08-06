@@ -56,3 +56,4 @@ Dr. Carlson, my counselor who did not screen for child abuse
 Dr. Gustafson, my head shrink who did not screen for child abuse  
 Cassandra Mills, music track producer  
 Curtis Reeves, shot Chad Oulson dead in a movie theater for tossing a piece of popcorn at him  
+Louisiana attorney general Liz Murrill  
