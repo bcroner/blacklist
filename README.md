@@ -9,7 +9,6 @@ Julie Croner (née), my biological sister
 Dr. Edward Kaufman, MD, psychiatrist residing in Dana Point, CA  
 Tony Rackauckas, former Orange County District Attorney  
 Joe Biden, former US president  
-The Democrat National Committee and the Democrat Party  
 Alejandro Nicholas Mayorkas, former US Secretary of Homeland Security  
 Christopher Hubbard, Pillowcase Rapist  
 Rex Heuermann, Gilgo Beach serial killer  
