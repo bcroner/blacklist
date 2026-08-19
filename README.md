@@ -60,3 +60,5 @@ Cassandra Mills, music track producer
 Curtis Reeves, shot Chad Oulson dead in a movie theater for tossing a piece of popcorn at him  
 Liz Murrill, Louisiana attorney general  
 OnlyFans  
+Cynthia Santos, my ex-girlfriend
+
