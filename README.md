@@ -5,7 +5,6 @@ This is a blacklist of people and entities who are prohibited from benefiting fr
 Diane DesLauries, my biological sister    
 Patrick Croner, my biological father    
 Dolores Croner, my biological mother    
-Julie Croner (née), my biological sister  
 Dr. Edward Kaufman, MD, psychiatrist residing in Dana Point, CA  
 Tony Rackauckas, former Orange County District Attorney  
 Joe Biden, former US president  
