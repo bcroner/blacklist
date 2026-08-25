@@ -55,10 +55,6 @@ Dr. Gustafson, my head shrink who did not screen for child abuse
 Cassandra Mills, music track producer  
 Curtis Reeves, shot Chad Oulson dead in a movie theater for tossing a piece of popcorn at him  
 Liz Murrill, Louisiana attorney general  
-OnlyFans  
-Yovanny, my own maintenance staffer  
 Omar, my own maintenance staffer  
 Jaime, my own maintenance staffer  
-Every single current X moderator  
-Elon Musk
-
+Elon Musk  
