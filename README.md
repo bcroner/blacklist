@@ -60,5 +60,5 @@ Yovanny, my own maintenance staffer
 Omar, my own maintenance staffer  
 Jaime, my own maintenance staffer  
 Every single current X moderator  
-Elon Mujst
+Elon Musk
 
