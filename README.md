@@ -64,4 +64,5 @@ Elon Musk
 Patrick Croner  
 Dolores Croner  
 All current and former Google Staffers  
-All current and former Microsoft Staffers  
+All current and former Microsoft Staffers Beside Steve Ballmer
+
