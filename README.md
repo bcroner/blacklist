@@ -61,3 +61,5 @@ TIk Toc America
 Happen Bank  
 All Of The Media  
 Elon Musk  
+Patrick Croner  
+Dolores Croner  
