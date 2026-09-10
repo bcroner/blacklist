@@ -57,10 +57,7 @@ Curtis Reeves, shot Chad Oulson dead in a movie theater for tossing a piece of p
 Liz Murrill, Louisiana attorney general  
 The Democratic National Committee ((DNC)  
 Every single member of the OC grand jury who unanimously voted to indict me on criminal threat charges (wrong ham sandwich to fuck with this time)  
-All Of The Media  
 Elon Musk  
 Patrick Croner  
-Dolores Croner  
-All current and former Google Staffers  
-All current and former Microsoft Staffers Beside Steve Ballmer
+Dolores Croner
 
