@@ -56,8 +56,5 @@ Cassandra Mills, music track producer
 Curtis Reeves, shot Chad Oulson dead in a movie theater for tossing a piece of popcorn at him  
 Liz Murrill, Louisiana attorney general  
 The Democratic National Committee ((DNC)  
-Every single member of the OC grand jury who unanimously voted to indict me on criminal threat charges (wrong ham sandwich to fuck with this time)  
-Elon Musk  
-Patrick Croner  
-Dolores Croner
+Every single member of the OC grand jury who unanimously voted to indict me on criminal threat charges (wrong ham sandwich to fuck with this time)
 
