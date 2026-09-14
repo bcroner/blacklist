@@ -60,3 +60,4 @@ Every single member of the OC grand jury who unanimously voted to indict me on c
 U.S. District Judge Jill Parrish of Utah   
 Javier Rivera   
 Simon Sandoval-Moshenberg  
+Anyone who acts to prevent the teenager who murdered Kyle Bickham from dying on the breaking wheel
