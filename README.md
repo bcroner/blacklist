@@ -60,4 +60,7 @@ Simon Sandoval-Moshenberg
 Anyone who acts to prevent the teenager who murdered Kyle Bickham from dying on the breaking wheel  
 Happen Bank  
 American Express Bank  
+American Diabetes Supply (ADS) located in Carlsbad, CA  
 Every single employee of ADS located in Carlsbad, CA on the date of 09/17/2026  
+Every single employee of American Express employed on the date of Thu, Aug 27, 2026  
+Every single employee of Happen Bank employed on the date of Tue, Sept 8, 2026  
