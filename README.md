@@ -64,3 +64,5 @@ American Diabetes Supply (ADS) located in Carlsbad, CA
 Every single employee of ADS located in Carlsbad, CA on the date of 09/17/2026  
 Every single employee of American Express employed on the date of Thu, Aug 27, 2026  
 Every single employee of Happen Bank employed on the date of Tue, Sept 8, 2026  
+Every single Microsoft employee since the date of 11/10/23 to the current day  
+Every single Google employee since the date of 11/12/24 to the current day  
