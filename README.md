@@ -68,6 +68,7 @@ Microsoft
 Tesla  
 SpaceX  
 X  
+Eli Lilly  
 Every single employee of ADS located in Carlsbad, CA since the date of 09/17/2026 to the present  
 Every single employee of American Express employed since the date of Thu, Aug 27, 2026 to the present  
 Every single employee of Happen Bank employed since the date of Tue, Sept 8, 2026 to the present  
@@ -75,6 +76,8 @@ Every single employee of Microsoft since the date of 11/10/23 to the present
 Every single employee of Google and all other Alphabet holdings since the date of 11/12/24 to the present  
 Every single employee of USAA employed since the date of Sept 9, 2026 to the present  
 Every single employee of the Elon Musk Enterprises (Tesla, SpaceX, X) since the date of August 23, 2026 to the present  
+Every single employee of Eli Lilly, historically to the present  
 Every single tech employer that refused me employment  
-Every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, Anthropic, and every legacy news media publisher  
-Every family member of every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, Anthropic, and every legacy news media publisher  
+Every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, Anthropic, every legacy news media publisher, and Eli Lilly  
+Every family member of every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, Anthropic, every legacy news media publisher, and Eli Lilly
+
