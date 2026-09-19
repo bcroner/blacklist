@@ -79,5 +79,7 @@ Every single employee of the Elon Musk Enterprises (Tesla, SpaceX, X) since the 
 Every single employee of Eli Lilly, historically to the present  
 Every single tech employer that refused me employment  
 Every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, Anthropic, every legacy news media publisher, and Eli Lilly  
-Every family member of every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, Anthropic, every legacy news media publisher, and Eli Lilly
-
+Every family member of every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, Anthropic, every legacy news media publisher, and Eli Lilly  
+CNN  
+MSN Now  
+Politico  
