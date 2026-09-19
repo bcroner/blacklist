@@ -61,9 +61,12 @@ Anyone who acts to prevent the teenager who murdered Kyle Bickham from dying on 
 Happen Bank  
 American Express Bank  
 American Diabetes Supply (ADS) located in Carlsbad, CA  
+USAA  
 Every single employee of ADS located in Carlsbad, CA on the date of 09/17/2026  
 Every single employee of American Express employed on the date of Thu, Aug 27, 2026  
 Every single employee of Happen Bank employed on the date of Tue, Sept 8, 2026  
 Every single Microsoft employee since the date of 11/10/23 to the current day  
 Every single Google employee since the date of 11/12/24 to the current day  
+Every single employee of USAA employed since the date of Sept 9, 2026 to the present  
 Every single tech employer that refused me employment  
+Every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, and Google  
