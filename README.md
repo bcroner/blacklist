@@ -76,4 +76,4 @@ Every single employee of Google and all other Alphabet holdings since the date o
 Every single employee of USAA employed since the date of Sept 9, 2026 to the present  
 Every single employee of the Elon Musk Enterprises (Tesla, SpaceX, X) since the date of August 23, 2026 to the present  
 Every single tech employer that refused me employment  
-Every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, and Anthropic  
+Every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, Anthropic, and every legacy news media publisher  
