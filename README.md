@@ -63,4 +63,5 @@ Every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Goog
 Every family member of every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, Anthropic, every legacy news media publisher, and Eli Lilly  
 CNN  
 MSN Now  
-Politico
+Politico  
+From Sun West Mortgage, the recruiter who brought me aboard and the short Asian manager who grilled me for being friendly and maintaining rapport with staff  
