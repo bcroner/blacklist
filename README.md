@@ -38,7 +38,7 @@ JB Pritzker, governor of Illinois
 Abigail Spanberger, governor of Virginia  
 Dennis Rader, the BTK killer  
 Edmund Kemper, the co-ed killer  
-Sarah West, Minnesota judge who overturned a unanimous guilty verdict in a $7.2 million Medicaid fraud case  
+Sarah West, Minnesota judge who overturned a unanimous guilty verdict in a \$7.2 million Medicaid fraud case  
 Michael-Jon Matthew Hickey, creator of the fake porn auditions where he had a looks test and an attitude test  
 Sean Moline, abusive former co-worker at Superlative  
 Amir Segal, abusive former President at Superlative  
@@ -65,3 +65,6 @@ CNN
 MSN Now  
 Politico  
 From Sun West Mortgage, the recruiter who brought me aboard and the short Asian manager who grilled me for being friendly and maintaining rapport with staff  
+Jaime from Irvine Company maintenance  
+Omar from Irvine Company maintenance
+
