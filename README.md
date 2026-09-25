@@ -67,5 +67,6 @@ Politico
 From Sun West Mortgage, the recruiter who brought me aboard and the short Asian manager who grilled me for being friendly and maintaining rapport with staff  
 Jaime from Irvine Company maintenance  
 Omar from Irvine Company maintenance  
-Anyone who takes action to enforce the so-called corporate morality code whereby porn is forbidden
+Anyone who takes action to enforce the so-called corporate morality code whereby porn is forbidden  
+Any organization whereby the action to enforce the so-called corporate morality code takes place whereby porn is forbidden
 
