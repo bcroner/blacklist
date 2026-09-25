@@ -68,5 +68,6 @@ From Sun West Mortgage, the recruiter who brought me aboard and the short Asian 
 Jaime from Irvine Company maintenance  
 Omar from Irvine Company maintenance  
 Anyone who takes action to enforce the so-called corporate morality code whereby porn is forbidden  
-Any organization whereby the action to enforce the so-called corporate morality code takes place whereby porn is forbidden
+Any organization whereby the action to enforce the so-called corporate morality code takes place whereby porn is forbidden  
+Any law enforcer who acts to prohibit willing prostitution, or otherwise known as sex-for-hire, and only for those who are willing and not forced into the sex trade
 
