@@ -78,6 +78,13 @@ Donald Trump
 Eric Trump  
 JD Vance
 The Irvine Company Apartments 
+American Express 
+Happen Bank
+USAA
+Google 
+Microsoft 
+USAA
+
 
 # Blacklist Exemptions
 
