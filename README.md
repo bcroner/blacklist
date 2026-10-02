@@ -59,8 +59,8 @@ Javier Rivera
 Simon Sandoval-Moshenberg  
 Anyone who acts to prevent the teenager who murdered Kyle Bickham from dying on the breaking wheel  
 Dr. Appelbaum, Psychiatrist, OC, CA  
-Every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, Anthropic, every legacy news media publisher, and Eli Lilly  
-Every family member of every shareholder of the boards of Amex, ADS, Happen Bank, USAA, Microsoft, Google/Alphabet Group, Tesla, SpaceX, X, Anthropic, every legacy news media publisher, and Eli Lilly  
+Every shareholder of the boards of all publicly traded companies in the US  
+Every family member of every shareholder of the boards of all publicly traded companies in the US  
 CNN  
 MSN Now  
 Politico  
@@ -71,5 +71,7 @@ Anyone who takes action to enforce the so-called corporate morality code whereby
 Any organization whereby the action to enforce the so-called corporate morality code takes place whereby porn is forbidden  
 Any law enforcer who acts to prohibit willing prostitution, or otherwise known as sex-for-hire, and only for those who are willing and not forced into the sex trade  
 In observance of the Federal Communications Commission, any individual who acts to restrict the Article 1 right to the freedom of speech  
-Kelly Education with a location in Missouri
-
+Kelly Education with a location in Missouri  
+Donald Trump  
+Eric Trump  
+JD Vance  
