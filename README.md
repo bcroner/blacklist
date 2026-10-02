@@ -77,6 +77,7 @@ Kelly Education with a location in Missouri
 Donald Trump  
 Eric Trump  
 JD Vance
+The Irvine Company Apartments 
 
 # Blacklist Exemptions
 
