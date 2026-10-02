@@ -61,6 +61,8 @@ Anyone who acts to prevent the teenager who murdered Kyle Bickham from dying on 
 Dr. Appelbaum, Psychiatrist, OC, CA  
 Every shareholder of the boards of all publicly traded companies in the US  
 Every family member of every shareholder of the boards of all publicly traded companies in the US  
+Every corporate officer of all publicly traded companies in the US  
+Every family member of every corporate officer of all publicly traded companies in the US  
 CNN  
 MSN Now  
 Politico  
@@ -74,4 +76,8 @@ In observance of the Federal Communications Commission, any individual who acts 
 Kelly Education with a location in Missouri  
 Donald Trump  
 Eric Trump  
-JD Vance  
+JD Vance
+
+# Blacklist Exemptions
+
+Every company founder such as Jeff Bezos, Bill Gates, Mark Zuckerberg, small pee-pee Elon Musk, etc
