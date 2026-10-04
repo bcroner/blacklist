@@ -104,4 +104,10 @@ Every shareholder member of the boards, every corporate officer, every family me
 * The Irvine Spectrum Shopping Center  
 * The Fashion Island Shopping Center  
 * The South Coast Plaza Mall  
-* Cafe Rio
+* Cafe Rio  
+* Netflix  
+* Apple  
+* Google/Alphabet (contingent upon corporate due diligence, bug bounty, and compensation for All Clowns)  
+* Meta/Facebook  
+* BevMo  
+* Total Wine
