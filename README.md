@@ -76,16 +76,28 @@ In observance of the Federal Communications Commission, any individual who acts 
 Kelly Education with a location in Missouri  
 Donald Trump  
 Eric Trump  
-JD Vance
-The Irvine Company Apartments 
-American Express 
-Happen Bank
-USAA
-Google 
-Microsoft 
-USAA
-
+JD Vance  
+The Irvine Company Apartments   
+American Express  
+Happen Bank  
+USAA  
+Google  
+Microsoft
 
 # Blacklist Exemptions
 
 Every company founder such as Jeff Bezos, Bill Gates, Mark Zuckerberg, small pee-pee Elon Musk, etc
+
+Every shareholder member of the boards, every corporate officer, every family member thereof, and the organizations themselves of:
+
+* Bank of America  
+* Chase Bank  
+* Paypal  
+* Amazon  
+* Real Mad Honey  
+* Robinhood  
+* McDonald’s  
+* Costco  
+* WalMart  
+* Law Enforcement of the cities of and the county itself of Orange County, CA  
+* The Secret Service
