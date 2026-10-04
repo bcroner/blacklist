@@ -81,7 +81,6 @@ The Irvine Company Apartments
 American Express  
 Happen Bank  
 USAA  
-Google  
 Microsoft
 
 # Blacklist Exemptions
