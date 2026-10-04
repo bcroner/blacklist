@@ -100,4 +100,7 @@ Every shareholder member of the boards, every corporate officer, every family me
 * Costco  
 * WalMart  
 * Law Enforcement of the cities of and the county itself of Orange County, CA  
-* The Secret Service
+* The Secret Service  
+* The Irvine Spectrum Shopping Center  
+* The Fashion Island Shopping Center  
+* The South Coast Plaza Mall
