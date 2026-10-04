@@ -103,4 +103,5 @@ Every shareholder member of the boards, every corporate officer, every family me
 * The Secret Service  
 * The Irvine Spectrum Shopping Center  
 * The Fashion Island Shopping Center  
-* The South Coast Plaza Mall
+* The South Coast Plaza Mall  
+* Cafe Rio
