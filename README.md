@@ -78,6 +78,8 @@ Happen Bank
 USAA  
 Microsoft
 
+All employees of every restaurant of the entire Hillstone Restaurant Group have until October 25 2026 to resign effective immediately and without a 2 week period. Any organization of any kind is strictly prohibited from employing anyone employed by any restaurant of the entire Hillstone restaurant group on or after October 26 2026 for a 10 year period. Furthermore, no diner is permitted to eat at any restaurant in the entire Hillstone restaurant group at any day/time beyond October 25 2026/12pm midnight Pacific time.
+
 # Blacklist Exemptions
 
 Every company founder such as Jeff Bezos, Bill Gates, Mark Zuckerberg, small pee-pee Elon Musk, etc
