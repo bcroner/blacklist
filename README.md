@@ -83,6 +83,12 @@ forming a new friendship together. What else is there about t to n Judge about i
 
 Anyone and everyone who has ever been employed by the Irvine company althoughout the entire history of the business.
 
+Donald Trump
+Every member of the Trump Administration
+Lucky Larry Silverstein
+Donald Bren
+Sunday Pichai, Google CEO
+
 # Blacklist Exemptions
 
 Every company founder such as Jeff Bezos, Bill Gates, Mark Zuckerberg, small pee-pee Elon Musk, etc
