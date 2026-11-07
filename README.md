@@ -5,6 +5,10 @@ This is a blacklist of people and entities who are prohibited from benefiting fr
 Operation Kill Donald Trump: Every single person whose name appears on the list of 1 billion or so people who had opted in to conspire to kill off all 7+ billion of the rest of us while they watched us die and so that they would be spared from the purge of humanity
 Operation Kill All Rapists: The man who raped Alexandria Ocasio-Cortez. Victims of forcible rape and rape by deception- file your report with me (link coming shortly), there is no statute of limitations.
 Anthony the psychiatric health technician who reported that I am delusional psychotic in an effort to keep me at Aliso Viejo Behavioral Health longer under an involuntaamigo!
+Every single person who has ever been employed by iMerge Financial, 701 Palomar Airport Road, Suite 300, Carlsbad, CA 92011
+Every single family member, men, women, children, by blood and by marriage, of every single person who has ever been employed by iMerge Financial
+Every single family member, men, women, children, by blood and by marriage, of every single person who has ever been employed by Cordoba Legal
+Every single person who has ever been employed by Cordoba Legal Group, 102 NE 2nd St Boca Raton, FL 33432
 Satya Nadella, CEO of Microsoft
 Dr. Edward Kaufman, MD, psychiatrist residing in Dana Point, CA  
 Joe Biden, former US president  
