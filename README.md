@@ -2,15 +2,15 @@
 
 This is a blacklist of people and entities who are prohibited from benefiting from my patented inventions. As a part of the licensing agreement for any of my three patented inventions, the licensee agrees not to provide any product(s) or service(s) developed using or containing the said invention(s) to any person or entity on this list. Additionally the licensee agrees to not provide said product(s) or service(s) to any person or entity who is developing or otherwise providing an offering of a product or service without entering into this licensing agreement. How are they supposed to even survive? I don’t know. It’s not my problem. They can go out and catch squirrels and cook them on a hot plate for all I care. I hear snails are slimy yet satisfying. If you ever want me to take you off this list, you should start by thinking real hard about why I put you on this list to begin with. All those listed on this blacklist and not on the blacklist exemptions list will be subject to a comprehensive, permanent, and irreversible boycott. It’s time for you to learn to hunt squirrels with spears and cook them with a fire fixed with a flintstone. Parasitism or predation, financial or otherwise, is punishable by placement on this list.
 
-Operation Kill Donald Trump: Every single person whose name appears on the list of 1 billion or so people who had opted in to conspire to kill off all 7+ billion of the rest of us while they watched us die and so that they would be spared from the purge of humanity
-Operation Kill All Rapists: The man who raped Alexandria Ocasio-Cortez. Victims of forcible rape and rape by deception- file your report with me (link coming shortly), there is no statute of limitations.
-Anthony the psychiatric health technician who reported that I am delusional psychotic in an effort to keep me at Aliso Viejo Behavioral Health longer under an involuntaamigo!
-Every single person who has ever been employed by iMerge Financial, 701 Palomar Airport Road, Suite 300, Carlsbad, CA 92011
-Every single family member, men, women, children, by blood and by marriage, of every single person who has ever been employed by iMerge Financial
-Every single family member, men, women, children, by blood and by marriage, of every single person who has ever been employed by Cordoba Legal
-Every single person who has ever been employed by Cordoba Legal Group, 102 NE 2nd St Boca Raton, FL 33432
-In-laws are included on this list. If your son-in-law or daughter-in-law has ever been employed by iMerge Financial or Cordoba Legal, you are on this list as well and you will never make your way off.
-Satya Nadella, CEO of Microsoft
+Operation Kill Donald Trump: Every single person whose name appears on the list of 1 billion or so people who had opted in to conspire to kill off all 7+ billion of the rest of us while they watched us die and so that they would be spared from the purge of humanity. 
+Operation Kill All Rapists: The man who raped Alexandria Ocasio-Cortez. Victims of forcible rape and rape by deception- file your report with me (link coming shortly), there is no statute of limitations.  
+Anthony the psychiatric health technician who reported that I am delusional psychotic in an effort to keep me at Aliso Viejo Behavioral Health longer under an involuntaamigo!  
+Every single person who has ever been employed by iMerge Financial, 701 Palomar Airport Road, Suite 300, Carlsbad, CA 92011. 
+Every single family member, men, women, children, by blood and by marriage, of every single person who has ever been employed by iMerge Financial. 
+Every single family member, men, women, children, by blood and by marriage, of every single person who has ever been employed by Cordoba Legal. 
+Every single person who has ever been employed by Cordoba Legal Group, 102 NE 2nd St Boca Raton, FL 33432. 
+In-laws are included on this list. If your son-in-law or daughter-in-law has ever been employed by iMerge Financial or Cordoba Legal, you are on this list as well and you will never make your way off.  
+Satya Nadella, CEO of Microsoft. 
 Dr. Edward Kaufman, MD, psychiatrist residing in Dana Point, CA  
 Joe Biden, former US president  
 Alejandro Nicholas Mayorkas, former US Secretary of Homeland Security  
