@@ -98,6 +98,8 @@ Sunday Pichai, Google CEO
 
 # Blacklist Exemptions
 
+Stephen Miller
+
 Every company founder such as Jeff Bezos, Bill Gates, Mark Zuckerberg, small pee-pee Elon Musk, etc
 
 Every shareholder member of the boards, every corporate officer, every family member thereof, and the organizations themselves of:
