@@ -87,15 +87,15 @@ American Express
 Happen Bank  
 USAA  
 
-The man with the smallest pee-pee of anyone employed in the entire city of Irvine, CA, the 5'4 restaurant manager at Houston's Irvine, and the reason I say employed in the city, it is because his pee-pee is too small for him to be permitted to live in this city, and he thinks that he is showing off how macho he is by sticking it to me that in his own imagination he thinks that his reason for being alive Leslie is melting in her panties over him when in fact she is cracking a smile out of the corner of her mouth as she is bursting at the seams on the inside laughing while she waits for me to publish this post. Dude 10x your dick, ballsack, and muscles, gain an entire additional foot in height, put 13 extra digits onto your net worth, and multiply your IQ by 100,000 before Leslie will have anything to do with you, and the real reason that she, Gina, and Ashley were just chatty with me was because everyone around already knew about THE FUCKING GODDAMN AOC.
+The man with the smallest pee-pee of anyone employed in the entire city of Irvine, CA, the 5'4 restaurant manager at Houston's Irvine, and the reason I say employed in the city, it is because his pee-pee is too small for him to be permitted to live in this city, and he thinks that he is showing off how macho he is by sticking it to me that in his own imagination he thinks that his reason for being alive Leslie is melting in her panties over him when in fact she is cracking a smile out of the corner of her mouth as she is bursting at the seams on the inside laughing while she waits for me to publish this post. Dude 10x your dick, ballsack, and muscles, gain an entire additional foot in height, put 13 extra digits onto your net worth, and multiply your IQ by 100,000 before Leslie will have anything to do with you, and the real reason that she, Gina, and Ashley were just chatty with me was because everyone around already knew about THE FUCKING GODDAMN AOC. Okay, and ladies with the burns are cool as all hell for me, too.
 
-Anyone and everyone who has ever been employed by the Irvine company althoughout the entire history of the business.
+Anyone and everyone who has ever been employed by the Irvine company although out the entire history of the business.
 
 Donald Trump
 Every member of the Trump Administration
 Lucky Larry Silverstein
 Donald Bren
-Sunday Pichai, Google CEO
+Sundar Pichai, Google CEO
 
 # Blacklist Exemptions
 
