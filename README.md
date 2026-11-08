@@ -10,7 +10,7 @@ Every single family member, men, women, children, by blood and by marriage, of e
 Every single person who has ever been employed by Cordoba Legal Group, 102 NE 2nd St Boca Raton, FL 33432. 
 Every single family member, men, women, children, by blood and by marriage, of every single person who has ever been employed by Cordoba Legal. 
 In-laws are included on this list. If your son-in-law or daughter-in-law has ever been employed by iMerge Financial or Cordoba Legal, you are on this list as well and you will never make your way off.  
-Satya Nadella, CEO of Microsoft. 
+Satya Nadella, CEO of Microsoft.  
 Dr. Edward Kaufman, MD, psychiatrist residing in Dana Point, CA  
 Joe Biden, former US president  
 Alejandro Nicholas Mayorkas, former US Secretary of Homeland Security  
