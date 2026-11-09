@@ -88,6 +88,7 @@ MSN Now
 Politico  
 From Sun West Mortgage, the recruiter who brought me aboard and the short Asian manager who grilled me for being friendly and maintaining rapport with staff  
 Jaime from Irvine Company maintenance  
+Jaime's entire family- wife, children, his father and his mother, all of his siblings, and his father in law and his mother in law
 Omar from Irvine Company maintenance  
 Anyone who takes action to enforce the so-called corporate morality code whereby porn is forbidden  
 Any organization whereby the action to enforce the so-called corporate morality code takes place whereby porn is forbidden 
